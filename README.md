@@ -1,7 +1,7 @@
 # Bingo-Blitz-Free-Credits-2024---Freebies-Promo-Codes-...december-2024-new-code-
 Unlock Exciting Rewards with Bingo Blitz Promo Codes!
 
-✅ **[CLICK HERE TO GET FREE NOW](https://royxn.com)**➤➤
+✅ **[CLICK HERE TO GET FREE NOW](https://royxn.com)** ➤➤
 
 ✅ **[CLICK HERE TO GET FREE NOW](https://royxn.com)** ➤➤
 
